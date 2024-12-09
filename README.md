@@ -101,6 +101,3 @@ enjoy
 
 
 
-
-
-IDC IF I SKIDDED IT
